@@ -10,4 +10,4 @@ Meu nome é `Victor` `Hugo`
 
 victorhugoflopes89@gmail.com
 
-![happy dog](https://media.tenor.com/3xYX7Vh4rJYAAAAC/happy-happy-dog.gif)
+![Obrigado pela atenção!](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTBZUHb-B89CmDv401Jovw2Q4EjbYeTnjT0Gw&usqp=CAU)
